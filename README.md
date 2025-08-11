@@ -1,1 +1,0 @@
-# Mashal-Project-2024-25-Ground-Location-and-Information
